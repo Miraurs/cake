@@ -13,7 +13,7 @@ Location:
 Pavilion Bukit Jalil
 
 Phone Number:
-+60 19-439 5991
++60 11-5678 6588
 
 Cake flavours:
 Chocolate (Available)
